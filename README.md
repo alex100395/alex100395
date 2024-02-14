@@ -15,5 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 📫 How to reach me: 
-- [Facebook - @Alex.Patsalides](https://www.facebook.com/alex.patsalides.14)
-- [Instagram - @Alex.Patsalides](https://www.instagram.com/alex.patsalides/)
+- [LinkedIn - @Alexander Patsalides](https://www.linkedin.com/in/patsalidesalexander/)
